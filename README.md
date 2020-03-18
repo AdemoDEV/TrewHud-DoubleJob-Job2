@@ -7,7 +7,7 @@ IMPORTANT : Mettre le dossier img dans le dossier Html
 
 En cas de Probléme Contactez moi
 
-Mon discord : A.D.E.M.O#1070 Discord Aide RubyLium : https://discord.gg/UQfZWa ! 
+Mon discord : A.D.E.M.O#1070
 
 Discord Aide : https://discord.gg/ySGru5 !
 
