@@ -7,7 +7,7 @@ IMPORTANT : Mettre le dossier img dans le dossier Html
 
 En cas de Probléme Contactez moi
 
-Mon discord : A.D.E.M.O#1070
+Mon discord : A.D.E.M.O#1111
 
 Discord Aide : https://discord.gg/ySGru5 !
 
